@@ -1,0 +1,1 @@
+I was stuck with this project for a lot of hours without finding any solution. Thankfully, I followed step by step the project of Miss "Maria Camila". Check out her YouTube video here: https://www.youtube.com/watch?v=WJ_IxpjRX58
